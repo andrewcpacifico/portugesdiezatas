@@ -1,3 +1,3 @@
-# Porrtugês di e_za_tas
+# Porrtugês di eza'tas
 
-Defini_sõ_is du porrtugês ci fas sẽ_thi_du
+Definisõ'is du porrtugês ci fas sẽthi'du
